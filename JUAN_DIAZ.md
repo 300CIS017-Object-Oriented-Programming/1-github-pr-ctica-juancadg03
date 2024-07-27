@@ -1,1 +1,1 @@
-Oh Gloria inmarcesible, oh jubilo inmortal 
+Oh Gloria inmarcesible, oh jubilo inmortal En surcos de dolores el bien germina ya
